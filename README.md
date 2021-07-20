@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @RFCARRI
+- 👀 I’m interested in to become a new developer in Java
+- 🌱 I’m currently learning about the concept object orientation
+- 💞️ I’m looking to collaborate in my work
+- 📫 How to reach me  cel (11) 9 7512-4622 / e-mail: robson_carriel@hotmail.com / Linkedln: https://www.linkedin.com/in/robson-carriel-4a664559/
